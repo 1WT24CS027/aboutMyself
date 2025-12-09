@@ -8,4 +8,4 @@ Subject Code : BSC358C
 Academic Year : 2025-2026
 Mobile No : 1234567890
 college name: Ghousia institute of technology
-My date of Joining to GITW: 30 th sep 2024
+My date of Joining to GITW: 25th sep 2024
